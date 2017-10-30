@@ -1,1 +1,1 @@
-# LYHME Community
+# LYHME
